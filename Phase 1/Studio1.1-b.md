@@ -1,1 +1,5 @@
+**Assignment title:** 
+Reflection Studio 1.1
 
+**Reflection questions:**
+This artwork is a form of protest against the cruel treatment of dogs in puppy mills and the impact of breeding versus adopting from animal shelters. If this work were real, it would be very powerful and informative. It would encourage the adoption of dogs instead of buying them. The location is powerful to the protest by showing people passing by the shelter that adoption is a better alternative to overbreeding. It is intended to show those already interested in acquiring a dog that there are so many dogs for adoption they could give another chance and would be saved from being euthanized. I believe the images of dogs will bring the most reaction out of people because it is relatable and utilizes pathos to play to the emotions of the intended audience. There is also a play on logos in that logically, overbreeding is contributing to the problem of animal overpopulation. Adoption would lessen the problem of overpopulation while decreasing the demand for continuous breeding.
